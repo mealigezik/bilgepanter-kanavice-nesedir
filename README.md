@@ -1,1 +1,1 @@
-Visit with this link. https://mealigezik.github.io/kanevice-nesedir-bp/
+Visit with this link. https://mealigezik.github.io/bilgepanter-kanavice-nesedir/
